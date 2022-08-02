@@ -1,4 +1,18 @@
-### Hi there 👋
+### I'm Gandalf
+
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
+![Eu sou incrível](https://c.tenor.com/lPjVxg0BXJ4AAAAC/gandalf-happy.gif)
 
 <!--
 **ingridfalchii/ingridfalchii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
